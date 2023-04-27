@@ -1,4 +1,3 @@
-### Hi there 👋
 ## I'm Tarık DEMIREL 
 #### With my perfectionist personality, I am a person who aims to finalize the task, work and responsibility given to me in the most accurate, smooth and fast way. When I encounter any problems or difficulties, I have a structure that stands on it and solves this problem solution-oriented or instantly resolves it.
 
